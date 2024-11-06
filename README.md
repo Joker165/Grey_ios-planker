@@ -2,8 +2,8 @@
 <p align="center">
 <img src="https://telegra.ph/file/c5cd34db4564750eee3f0.jpg" />
 </p>
-Created by Melting point ❣️\n
-Dgxeon 🦄 \n
+Created by Melting point ❣️.       
+X🦄 .           
 @GREY.inc 🍀
 
 # GREY SESSION CREDS PAIR 
